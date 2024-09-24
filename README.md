@@ -2,7 +2,7 @@
 - 👀 I’m interested in helping children 
 - 🌱 I’m currently learning more about children 
 - 💞️ I’m looking to collaborate on organisation to find help for my children  
-- 📫 How to reach me good think for my children 
+- 📫 How to reach: aidesauxenfantsdemarblanches4@gmail.com 
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
